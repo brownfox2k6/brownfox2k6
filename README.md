@@ -1,4 +1,4 @@
-### Hi there, I'm brownfox2k6, a learner from Hanoi, Vietnam 👋
+### Hi there, I'm brownfox2k6 👋
 
 <h3 align="center">
 ------ Profile view count ------ 
